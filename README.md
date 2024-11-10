@@ -7,4 +7,4 @@ I'm a father of two kids (9 & 6 years old), so on my free time I spend time with
 
 ### How to reach me
 * [LinkedIn](https://www.linkedin.com/in/mansnilsson1/)
-* [Bluesky](https://bsky.app/profile/mansnilsson.bsky.social)
+* [Bluesky](https://bsky.app/profile/mansnilsson.me)
